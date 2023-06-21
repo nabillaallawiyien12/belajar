@@ -1,0 +1,2 @@
+# belajar
+mengerjakan tugas
